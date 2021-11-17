@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+You can check out my other accouts at [vettri.com/talkswithdrg](http://vettri.com/talkswithdrg)
